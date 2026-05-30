@@ -2,15 +2,10 @@
 
 <div align="center">
 
- ✧･ﾟ: *✧･ﾟ*:･ﾟ✧*:･ﾟ✧ 
+⋆. 𐙚 ˚
 
 `self-taught developer`
 
-
-✿ [website](https://soon) ✦ [🎀](https://github.com/ashyyhere) ✦ [contact](https://discord.com/users/1351207453278343168>) ✿
-
-*:･ﾟ✧*:･ﾟ✧ ─── ✧･ﾟ: *✧･ﾟ:*
-
-⋆｡°✩ ✩°｡⋆
+[website](https://soon) · [GitHub](https://github.com/ashyyhere) · [contact](https://discord.com/users/1351207453278343168>)
 
 </div>
