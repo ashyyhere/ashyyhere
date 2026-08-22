@@ -6,6 +6,6 @@
 
 `learning new things...`
 
-[website](https://soon) · [GitHub](https://github.com/ashyyhere) · [contact](https://discord.com/users/1351207453278343168>)
+[website](https://soon) · [GitHub](https://github.com/ashyyhere) · [contact](to be updated )
 
 </div>
