@@ -4,8 +4,8 @@
 
 ⋆. 𐙚 ˚
 
-`learning new things...`
+> "learning new things..."
 
-[website](https://soon) · [GitHub](https://github.com/ashyyhere) · [contact](https://github.com/ashyyhere)
+[website](https://soon) · [email](mailto:heyya@ashyyhere.com) · [discord](https://discord.com/users/1351207453278343168) · [x](https://x.com/itsashyyhere)
 
 </div>
